@@ -1,3 +1,5 @@
+Link for presentation: https://docs.google.com/presentation/d/1SSIMrvM1vSdbm76GI53snit8xV-WoiJtoRKEvt0Bduk/edit?usp=sharing
+
 ### 3.3 - Solve the problem
 *Action plan - what would you do?*
 
